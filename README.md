@@ -1,2 +1,3 @@
 # VAL-OPEN-SOURCE
-for conner
+for the people with no skill
+
